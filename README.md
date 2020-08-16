@@ -12,9 +12,9 @@
 根据英国研究人员对 200 名男性进行了一项为期 5 年的追踪调查，发现每天都能凝望漂亮女性几分钟的男性，通常血压值较低，脉搏跳动较慢，心脏疾病也较少，平均寿命可以延长 4—5 年。
 
 ### 男生版
-[你的身材不配你的脸是一种怎样的体验？ 13211W　①上涨 550W](https://www.zhihu.com/question/35255031)
+[你的身材不配你的脸是一种怎样的体验？ 13211W　](https://www.zhihu.com/question/35255031)
 
-[女生穿成这样算暴露吗？ 12359W　①上涨约 5400W](https://www.zhihu.com/question/321123412)
+[女生穿成这样算暴露吗？ 12359W　](https://www.zhihu.com/question/321123412)
 
 [身材好是一种怎样的体验？ 10932W](https://www.zhihu.com/question/26037846)
 
@@ -712,9 +712,9 @@
 
 [高跟鞋要怎么穿才能显示出女性的性感？ 19W](https://www.zhihu.com/question/383189925)
 
-[高中生能不能穿得很性感（因为想被别人关注）?](https://www.zhihu.com/question/386002017)
+[高中生能不能穿得很性感（因为想被别人关注）? 1079w](https://www.zhihu.com/question/386002017)
 
-[中小学女教师夏天是不是不能穿这种裙子?](https://www.zhihu.com/question/23181813)
+[中小学女教师夏天是不是不能穿这种裙子? 5341w](https://www.zhihu.com/question/23181813)
 
 ### 女生版
 
