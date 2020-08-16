@@ -12,4 +12,7 @@
 根据英国研究人员对 200 名男性进行了一项为期 5 年的追踪调查，发现每天都能凝望漂亮女性几分钟的男性，通常血压值较低，脉搏跳动较慢，心脏疾病也较少，平均寿命可以延长 4—5 年。
 
 [男生版](https://github.com/GengchenXU/ZhiHu-fish/blob/master/%E7%94%B7%E7%94%9F%E7%89%88.md)  
-[女生版](https://github.com/GengchenXU/ZhiHu-fish/blob/master/%E5%A5%B3%E7%94%9F%E7%89%88.md)
+[女生版](https://github.com/GengchenXU/ZhiHu-fish/blob/master/%E5%A5%B3%E7%94%9F%E7%89%88.md)  
+
+*********************
+欢迎投稿
