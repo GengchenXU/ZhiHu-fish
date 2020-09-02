@@ -15,4 +15,7 @@
 [女生版](https://github.com/GengchenXU/ZhiHu-fish/blob/master/%E5%A5%B3%E7%94%9F%E7%89%88.md)  
 
 *********************
+2020/09/02持续更新中
+
+*********************
 欢迎投稿
